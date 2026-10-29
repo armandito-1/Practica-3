@@ -11,4 +11,6 @@
 [PROBLEMA1.zip](https://github.com/user-attachments/files/34131604/PROBLEMA1.zip)
 
 
+# VIDEOS
+https://youtube.com/shorts/uZSQ6WSQbtw?feature=share 
 
